@@ -35,5 +35,5 @@ Ik los problemen graag zelfstandig op en ben altijd op zoek naar plekken waar ik
 ### 📬 Contact
 
 * **Email:** [Lunakwek@outlook.com](mailto:Lunakwek@outlook.com)[cite: 1]
-* **LinkedIn:** [Luna Keirsgieter](https://www.linkedin.com) *(vervang dit even met je eigen profiel-link)*
+* **LinkedIn:** [Luna Keirsgieter](https://www.linkedin.com)
 * **Locatie:** Assen, Nederland[cite: 1]
