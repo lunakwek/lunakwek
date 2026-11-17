@@ -1,5 +1,3 @@
-## Hi there 👋
-
 # 👋 Hi, I'm Luna Keirsgieter!
 
 ### 💻 Software Developer in training | Combining Code & Creative Design
